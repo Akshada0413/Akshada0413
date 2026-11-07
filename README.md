@@ -1,4 +1,4 @@
-# Hi there, I'm Akshada Solse! 👋
+# Hi there, I'm Akshada Solase! 👋
 
 ### Aspiring Data Analyst | Computer Engineering Graduate
 
